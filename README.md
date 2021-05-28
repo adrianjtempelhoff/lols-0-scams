@@ -1,0 +1,1 @@
+# lols-0-scams
